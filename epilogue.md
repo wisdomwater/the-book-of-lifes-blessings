@@ -1,7 +1,5 @@
 ## Epilogue
 
-### *A Benediction of Slow Becoming*
-
 If you have come this far,
 do not leave these pages too quickly.
 

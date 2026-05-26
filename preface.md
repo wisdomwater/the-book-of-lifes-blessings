@@ -1,7 +1,5 @@
 ## Preface
 
-### The Book of Life’s Blessings
-
 There are some books that do not merely speak to the mind.
 They enter the imagination.
 

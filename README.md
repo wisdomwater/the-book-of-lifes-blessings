@@ -36,11 +36,11 @@ Each entry includes:
 
 A poetic symbolic meditation written in luminous, contemplative language.
 
-### Living the Vision
+**Living the Vision**
 
 A gentle reflection connecting the imagery to the reader’s inner life and daily experience.
 
-### Breath Prayer
+**Breath Prayer**
 
 A short inhale/exhale prayer designed to slow the reader down and cultivate stillness.
 
